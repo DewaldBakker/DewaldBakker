@@ -1,6 +1,6 @@
-## Hi, I'm Dewald Bakker
+## Hi, I am Dewald Bakker
 
-I'm a student at Belgium Campus
+I am a 3rd year student at Belgium Campus
 Passionate about the IT industry and what is happening in the Tech industry
 Seeking Internship/ Graduate with a diploma in IT
 
